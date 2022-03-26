@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **biponroy47@yahoo.com**
 
-- 📄 Know about my experiences [shorturl.at/couFM](shorturl.at/couFM)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1h3-aMMse_yI1_ts5PbE4kL-h3anic5oF/view?usp=sharing](https://drive.google.com/file/d/1h3-aMMse_yI1_ts5PbE4kL-h3anic5oF/view?usp=sharing)
 
 - ⚡ Fun fact **I love to take photos, create films, and skateboard.**
 
